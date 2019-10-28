@@ -1,3 +1,1 @@
-Witchapol Kotrakulsin 
-
-6110450324
+Witchapol Kotrakulsin 6110450324
